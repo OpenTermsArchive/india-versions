@@ -39,8 +39,6 @@ Meta में हम आपको यह समझाना चाहते ह
 * उस फ़ोन, कंप्यूटर या टैबलेट से प्राप्त जानकारी जिस पर आप हमारे प्रोडक्ट का उपयोग करते हैं, जैसे कि वह किस प्रकार का है और आप हमारे ऐप के कौन से वर्जन का उपयोग कर रहे हैं
 * [पार्टनर्स\[2\]](#annotation-2) से प्राप्त जानकारी कि आप हमारे प्रोडक्ट पर और उनके बाहर क्या करते हैं इसमें आपके द्वारा देखी गई अन्य वेबसाइट, उपयोग किए गए ऐप्स या खेले गए ऑनलाइन गेम्स शामिल हो सकते हैं.
 
-[](https://mbasic.facebook.com/video_redirect/?src=https%3A%2F%2Fvideo-bom2-3.xx.fbcdn.net%2Fo1%2Fv%2Ft2%2Ff2%2Fm69%2FAQPHbM1Y6Ilbyq0xANe0c481oa-MEy1SbKZX1Pbetrpb11aIhZwqsYrqdvKXj04fR-dbc6N31R7SO_GQylrXx6l1.mp4%3Fstrext%3D1%26_nc_cat%3D101%26_nc_sid%3D8bf8fe%26_nc_ht%3Dvideo-bom2-3.xx.fbcdn.net%26_nc_ohc%3DJDM5nKVB7UsQ7kNvwFyn1kj%26efg%3DeyJ2ZW5jb2RlX3RhZyI6Inhwdl9wcm9ncmVzc2l2ZS5GQUNFQk9PSy4uQzMuNjQwLnN2ZV9zZCIsInhwdl9hc3NldF9pZCI6MTExMzU1MjIzOTY2MzUyNCwiYXNzZXRfYWdlX2RheXMiOjEwOTIsInZpX3VzZWNhc2VfaWQiOjEwMTI4LCJkdXJhdGlvbl9zIjoxMDMsInVybGdlbl9zb3VyY2UiOiJ3d3cifQ%253D%253D%26ccb%3D17-1%26_nc_zt%3D28%26_nc_rml%3D0%26oh%3D00_AfKTdqEgo1yIQympw--8WqhRW0pDBYtyHBY7Uz4ghoWvuQ%26oe%3D6828C6F5&source=misc&id=1078484169415755&noredirect=0&watermark=0&locale2=hi_IN&__tn__=F)
-
 हम आपके बारे में जो जानकारी कलेक्ट और प्रोसेस करते हैं, वह इस बात पर निर्भर करती है कि आप हमारे [प्रोडक्ट\[3\]](#annotation-3) का उपयोग कैसे करते हैं. जैसे, अगर आप Marketplace पर फ़र्नीचर बेचते हैं तो हम आपके द्वारा Instagram पर रील पोस्ट करने की तुलना में अलग जानकारी कलेक्ट करते हैं. जब आप हमारे प्रोडक्ट का उपयोग करते हैं तो हम कुछ जानकारी एकत्रित करते हैं, [भले ही आपका कोई अकाउंट नहीं हो\[4\]](#annotation-4).
 
 यहाँ हमारे द्वारा एकत्रित की जाने वाली जानकारी दी गई है:
@@ -391,8 +389,6 @@ Meta में हम आपको यह समझाना चाहते ह
 * अगर आप हमें परमिशन देते हैं, तो हम आपको उन प्रोडक्ट्स के बारे में मैसेज भेजते हैं जिनका आप उपयोग करते हैं या जो आपको पसंद आ सकते हैं
 * हम पूरी दुनिया के लोगों के कल्याण के लिए शोध करते हैं, जैसे कि टेक्नोलॉजी को बेहतर बनाना या संकट में मदद करना
 
-[](https://mbasic.facebook.com/video_redirect/?src=https%3A%2F%2Fvideo-bom2-3.xx.fbcdn.net%2Fo1%2Fv%2Ft2%2Ff2%2Fm69%2FAQPUz9KSP4EcCINy-riSUXWL1EoZotE38pje73xlXjDGAc7XGvezM3ARLrzpTwLP1_Wh1OS130onddLBRMneYbK5.mp4%3Fstrext%3D1%26_nc_cat%3D101%26_nc_sid%3D8bf8fe%26_nc_ht%3Dvideo-bom2-3.xx.fbcdn.net%26_nc_ohc%3D71YG6SXAZMMQ7kNvwGRtK7e%26efg%3DeyJ2ZW5jb2RlX3RhZyI6Inhwdl9wcm9ncmVzc2l2ZS5GQUNFQk9PSy4uQzMuNDI2LnN2ZV9zZCIsInhwdl9hc3NldF9pZCI6Mjc2OTI5MDMxOTA2NzE5LCJhc3NldF9hZ2VfZGF5cyI6MTEwNSwidmlfdXNlY2FzZV9pZCI6MTAxMjgsImR1cmF0aW9uX3MiOjk0LCJ1cmxnZW5fc291cmNlIjoid3d3In0%253D%26ccb%3D17-1%26_nc_zt%3D28%26_nc_rml%3D0%26oh%3D00_AfJPqUQni-hsjUHh1MYb7cmvuqHQRFLaSkGDKCMex-qKDQ%26oe%3D6828E7C5&source=misc&id=3234506963505309&noredirect=0&watermark=0&locale2=hi_IN&__tn__=F)
-
 हम हमारे द्वारा [कलेक्ट की गई जानकारी](#1-WhatInformationDoWe) का उपयोग नीचे विस्तार से बताए गए अन्य उद्देश्यों के अलावा आपको पर्सनलाइज़ किया गया अनुभव देने के लिए करते हैं, जिसमें विज्ञापन शामिल हैं.
 
 इनमें से कुछ उद्देश्यों के लिए, हम [हमारे सभी प्रोडक्ट\[25\]](#annotation-25) और [आपके सभी डिवाइसों\[26\]](#annotation-26) पर जानकारी का उपयोग करते हैं. इन उद्देश्यों के लिए हमारे द्वारा उपयोग की जाने वाली जानकारी को हमारे सिस्टम अपने आप ही प्रोसेस कर देते हैं. हालाँकि, कुछ मामलों में हम आपकी जानकारी को एक्सेस करने और उसका रिव्यू करने के लिए [मैन्युअल रिव्यू\[27\]](#annotation-27) का उपयोग भी करते हैं.
@@ -555,8 +551,6 @@ Meta में हम आपको यह समझाना चाहते ह
 [हम आपकी जानकारी क्यों और कैसे प्रोसेस करते हैं](#19-WhyAndHowWe)
 
 25
-
-[](https://mbasic.facebook.com/video_redirect/?src=https%3A%2F%2Fvideo-bom1-2.xx.fbcdn.net%2Fo1%2Fv%2Ft2%2Ff2%2Fm69%2FAQMkxKtPFjj_5Cfylgq4IfQujNtlJXjKIKvVP6BB5JaQYHlvsjELTssObcdysPt2xPzetuZLlHeD1ii0_P9BpbDl.mp4%3Fstrext%3D1%26_nc_cat%3D109%26_nc_sid%3D8bf8fe%26_nc_ht%3Dvideo-bom1-2.xx.fbcdn.net%26_nc_ohc%3D3F7HVfPqzBwQ7kNvwF5ruDu%26efg%3DeyJ2ZW5jb2RlX3RhZyI6Inhwdl9wcm9ncmVzc2l2ZS5GQUNFQk9PSy4uQzMuNDI2LnN2ZV9zZCIsInhwdl9hc3NldF9pZCI6MzYxMTg3OTk4MjM5MTg0NiwiYXNzZXRfYWdlX2RheXMiOjEwOTIsInZpX3VzZWNhc2VfaWQiOjEwMTI4LCJkdXJhdGlvbl9zIjo5NywidXJsZ2VuX3NvdXJjZSI6Ind3dyJ9%26ccb%3D17-1%26_nc_zt%3D28%26_nc_rml%3D0%26oh%3D00_AfKWGaQKWc24wnp5mCGoLbx2pg2iYmgigKgJjWFpwM7WNA%26oe%3D6828D72D&source=misc&id=313266294163634&noredirect=0&watermark=0&locale2=hi_IN&__tn__=F)
 
 हम इन कामों को करने के लिए [हमारे प्रोडक्ट पर आपके अकाउंट में मौजूद जानकारी](https://www.meta.com/help/accounts-center/Information-used-across-accounts/) का उपयोग करते हैं:
 
