@@ -1,4 +1,4 @@
-Secondary Navigation
+सेकेंडरी नेविगेशन
 
 * Snap की सेवा की शर्तें
     * [सारांश](https://www.snap.com/terms?lang=hi-IN#summary)
