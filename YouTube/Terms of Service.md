@@ -1,7 +1,7 @@
 उपयोग की शर्तें
 ===============
 
-#### సర్వీస్ నియమాలను ఇతర భాషలలో చూడండి: [English](https://www.youtube.com/t/terms?hl=en&override_hl=1), [অসমীয়া](https://www.youtube.com/t/terms?hl=as&override_hl=1), [ગુજરાતી](https://www.youtube.com/t/terms?hl=gu&override_hl=1), [ಕನ್ನಡ](https://www.youtube.com/t/terms?hl=kn&override_hl=1), [മലയാളം](https://www.youtube.com/t/terms?hl=ml&override_hl=1), [मराठी](https://www.youtube.com/t/terms?hl=mr&override_hl=1), [ଓଡ଼ିଆ](https://www.youtube.com/t/terms?hl=or&override_hl=1), [ਪੰਜਾਬੀ](https://www.youtube.com/t/terms?hl=pa&override_hl=1), [தமிழ்](https://www.youtube.com/t/terms?hl=ta&override_hl=1), [తెలుగు](https://www.youtube.com/t/terms?hl=te&override_hl=1) మరియు [हिन्दी](https://www.youtube.com/t/terms?hl=hi&override_hl=1)
+#### सेवा की शर्तें अन्य भाषाओं में देखें: [English](https://www.youtube.com/t/terms?hl=en&override_hl=1), [অসমীয়া](https://www.youtube.com/t/terms?hl=as&override_hl=1), [ગુજરાતી](https://www.youtube.com/t/terms?hl=gu&override_hl=1), [ಕನ್ನಡ](https://www.youtube.com/t/terms?hl=kn&override_hl=1), [മലയാളം](https://www.youtube.com/t/terms?hl=ml&override_hl=1), [मराठी](https://www.youtube.com/t/terms?hl=mr&override_hl=1), [ଓଡ଼ିଆ](https://www.youtube.com/t/terms?hl=or&override_hl=1), [ਪੰਜਾਬੀ](https://www.youtube.com/t/terms?hl=pa&override_hl=1), [தமிழ்](https://www.youtube.com/t/terms?hl=ta&override_hl=1), [తెలుగు](https://www.youtube.com/t/terms?hl=te&override_hl=1), और [हिन्दी](https://www.youtube.com/t/terms?hl=hi&override_hl=1)
 
 **इन शर्तों में क्या है?**
 ==========================
